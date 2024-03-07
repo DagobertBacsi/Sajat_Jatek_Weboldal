@@ -1,2 +1,5 @@
-# Sajat_Jatek_Weboldal
+Saját Játék Weboldal
+
 Készítették: Kondor Milán, Némedi Dominik
+
+HTML, CSS, JS
