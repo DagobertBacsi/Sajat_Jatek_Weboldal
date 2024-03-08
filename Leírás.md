@@ -1,5 +1,4 @@
-A történet középpontjában egy elhagyatott, titokzatos laboratórium áll, melynek középpontjában egy rejtélyes tojás található, melynek hatalma és jelentése mélyen el van temetve a múlt homályában. A játékosoknak feladata feltárni ezt a labirintus-szerű létesítményt, miközben szembeszállnak különböző rémálomszerű lényekkel és veszélyekkel, amelyeket a tojás körül találnak.
-
+A történet középpontjában egy elhagyatott, titokzatos laboratórium áll, melynek középpontjában egy rejtélyes tojás található, melynek hatalma és jelentése mélyen el van temetve a múlt homályában.
+A játékosoknak feladata feltárni ezt a labirintus-szerű létesítményt, miközben szembeszállnak különböző rémálomszerű lényekkel és veszélyekkel, amelyeket a tojás körül találnak.
 A játék atmoszférája sötét és feszült, a hangulatot zenei és vizuális elemek erősítik. A résztvevőknek állandóan figyelniük kell a környezetüket, mert bármikor megtámadhatja őket valami váratlan veszély. Az egyedülálló pályatervezés és a változatos ellenfelek garantálják, hogy a játékosok mindig új kihívásokkal szembesüljenek.
-
 A Dark Egg egy olyan játék, amely a résztvevőkbe sújtja a félelmet és a kalandvágyat, miközben egy sötét és misztikus világba kalauzolja őket. Aki merészkedik be a laboratórium falai közé, az készüljön fel a legmélyebb rémálmokkal való szembesülésre és a túlélésért való küzdelemre.
